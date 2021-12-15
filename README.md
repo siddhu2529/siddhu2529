@@ -1,8 +1,8 @@
 - 👋 Hi, I’m siddhu
 - 👀 I’m interested in programming and learing about data analytics
-- 🌱 I’m currently learning machine learning with python
+- 🌱 I’m currently trying to develop my programming skills
 - 📫  reach me through my instagram_id s.siddhu_25,mail_id shanthisiddhu64@gmail.com
-- 🚗 i love driving cars
+- 🚗 i love driving cars,hear music,
 - 😌 when iam stressed i focus on AR Rahman's music and also love to play computer games.
 
 <!---
