@@ -1,5 +1,5 @@
 - 👋 Hi, I’m siddhu
-- 👀 I’m interested in programming and learning about data analytics
+- 👀 I’m interested in programming and designing websites
 - 🌱 I’m currently trying to develop my programming skills
 - 📫  reach me through my instagram_id s.siddhu_25,mail_id shanthisiddhu64@gmail.com
 - 🚗 i love driving cars,watching movies,
