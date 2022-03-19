@@ -2,7 +2,8 @@
 - 👀 I’m interested in programming and designing websites
 - 🌱 I’m currently trying to develop my programming skills
 - 📫  reach me through my Linkedin_id SIDDHARTH RAGHAVENDRA S,mail_id shanthisiddhu64@gmail.com
-- 🚗 i love driving cars,watching movies,
+- 🚗 Iam a car enthusiast.
+- 🎥-i love watching movies.
 - 😌 when iam stressed i focus on  music and also love to play pc games.
 
 <!---
